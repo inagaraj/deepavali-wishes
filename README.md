@@ -1,2 +1,2 @@
-# happy-deepavali-2020
+# happy-deepavali
 
